@@ -1,4 +1,4 @@
-#  
+#  hidden oil empire Script is the best oil empire Script, featuring invisibility and undetectable. Safe and powerful for all your needs.
 
 
 
